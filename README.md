@@ -1,4 +1,4 @@
-# **the archer** ೃ⁀➷
+# **THE ARCHER** ೃ⁀➷
 Samantha Nicole D. Fernandez
-## -- a list of songs that gives a deeper explanation about me. 
+## -- a list of songs that give a deeper explanation about myself.
 
