@@ -1,4 +1,4 @@
-# samnthanz.github.io
+sam's choice
 Samantha Nicole D. Fernandez
-#H1 sam's choice
+
 
